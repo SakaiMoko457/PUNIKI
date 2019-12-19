@@ -1,4 +1,4 @@
-# <div style = "text-align: center;"> プニキのホームランダービー </div>
+# <div style="text-align:center;"> プニキのホームランダービー </div>
   
   
 100エーカーの森のゆかいななかまとホームランきょうそうをしよう！  
