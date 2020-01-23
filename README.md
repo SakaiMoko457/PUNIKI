@@ -14,7 +14,7 @@
 特徴：    はちみつをキめると打力が上がる</p>
 </p>
 ・森の畜生ピッチャー 
-![Alt text](https://3.bp.blogspot.com/-mXs_R-VqIrY/W0xYxuk7LFI/AAAAAAABNbg/b98RovBeREsRnJ0fVBml9Qq41iOjoQ9iwCLcBGAs/s800/baseball_pitcher_man.png )  
+![Alt text](https://www.irasutoya.com/2013/12/blog-post_5056.html)  
 役職：   ピッチャー</p>
 見た目：  人</p>
 特徴：    50回ホームランを打たないと負けを認めない</p>
